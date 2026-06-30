@@ -1,0 +1,1 @@
+# ai-class-registration-0708
